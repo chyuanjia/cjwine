@@ -1,0 +1,2 @@
+# cjwine
+With more than 30 years of sales experiences,  steady is the key spirit of our business development. Countering the enormously changed marketing environment, flexibly meeting the demand from the market is beyond all doubt essential. According to the current market analysis, being a pioneer in every aspect of wine marketing and opening up new potential market is what we do and how we firmly believe.
